@@ -12,3 +12,6 @@ Arzaba Diaz April 1173 3W
 # ejercicio 5
 ![image](https://github.com/user-attachments/assets/986e99db-de47-46f2-ae3a-1be69e932125)
 # ejercicio 6
+![image](https://github.com/user-attachments/assets/d3c3d528-fc9b-40a6-bdb4-5189103c2a6f)
+# ejercicio 7
+![image](https://github.com/user-attachments/assets/9f9d3e50-78aa-4b5a-b976-ff4c81685e21)
